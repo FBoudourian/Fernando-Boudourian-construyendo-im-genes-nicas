@@ -1,1 +1,2 @@
 # Fernando-Boudourian-construyendo-im-genes-nicas
+La fotografía es como un proyecto técnico donde cada paso cuenta. Desde la planificación hasta la edición, se combinan precisión y creatividad para dar vida a una visión. Cada decisión tomada, ya sea técnica o estética, transforma una simple captura en una obra visual que inspira. Así, el arte fotográfico nos muestra que los detalles y el proceso son tan importantes como el resultado final.
